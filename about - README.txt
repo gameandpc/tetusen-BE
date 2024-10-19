@@ -23,4 +23,4 @@
 
 
 
-元ネタのぼんじゅうるさんのYoutube（製作者ではありません）→https://www.youtube.com/@bonj55
+元ネタのぼんじゅうるさんのYoutube（当ワールドの製作者ではありません）→https://www.youtube.com/@bonj55
